@@ -1,4 +1,4 @@
-# PBO
+# PRAKTIKUM PBO
 
 Rania Rasendriya Wijaya
 
